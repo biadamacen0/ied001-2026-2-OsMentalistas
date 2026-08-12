@@ -1,3 +1,6 @@
 # ied001-2026-2-OsMentalistas
 Os Mentalistas
-jkfhif
+Beatriz Damaceno Jardim (TCL)
+Pietra Rodrigues Barros (PM)
+
+
